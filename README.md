@@ -1,4 +1,4 @@
- # Hi, I'm Vennela Divya! 👋
+ # Hi, I'm Vennala Divya! 👋
 
 🎓 Computer Science Engineering Graduate
 
